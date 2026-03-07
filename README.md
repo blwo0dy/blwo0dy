@@ -6,5 +6,5 @@
 
                                        
 
-                       [prns.cc](https://rentry.co/nyantac) ୨୧ [rentry.co](https://pronouns.cc/@nonverbal)
+                       [rentry.co](https://rentry.co/nyantac) ୨୧ [prns.cc](https://pronouns.cc/@nonverbal)
                                                                                     12 . 26 . 25 < 3
