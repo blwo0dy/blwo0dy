@@ -1,4 +1,4 @@
-            ![img](https://files.catbox.moe/1t2sn5.png)
+            ![img](https://files.catbox.moe/5ek301.png)
                   
   ꒰    " I want to win too ! "
 
