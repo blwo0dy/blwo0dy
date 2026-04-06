@@ -1,4 +1,4 @@
-            ![img](https://files.catbox.moe/5ek301.png)
+            ![img](https://files.catbox.moe/ni13vd.png)
                   
   ꒰    " avery whats in your inventory ? "
 
