@@ -2,7 +2,7 @@
                   
   ꒰    " avery whats in your inventory ? "
 
-                   " whats in your inventory ? "
+                         " whats in your inventory ? "
 
                                        
 
