@@ -1,8 +1,8 @@
             ![img](https://files.catbox.moe/5ek301.png)
                   
-  ꒰    " I want to win too ! "
+  ꒰    " avery whats in your inventory ? "
 
-                   " I want to beat you and surpass you ! "
+                   " whats in your inventory ? "
 
                                        
 
