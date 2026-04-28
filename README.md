@@ -1,8 +1,8 @@
-            ![img](https://files.catbox.moe/ni13vd.png)
+            ![img](https://files.catbox.moe/0tybr1.png)
                   
-  ꒰    " avery whats in your inventory ? "
+  ꒰    " I've decided i'm gonna keep you here forever ! "
 
-                         " whats in your inventory ? "
+                         " you and me in the castle . "
 
                                        
 
