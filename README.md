@@ -1,4 +1,4 @@
-            ![img](https://files.catbox.moe/rifmvl.webp)
+            ![img](https://files.catbox.moe/pu6ghp.png)
                   ꒰    " I've decided i'm gonna keep you here forever ! "
 
                   " you and me in the castle . "
